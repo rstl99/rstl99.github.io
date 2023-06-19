@@ -6,6 +6,6 @@ This site is being reconstructed and will be available soon to provide you **qua
 
 Please come back to see the streamlined new site which will make it **easier to read and download** the articles I have written.
 
-Thank you and see you **soon**!
+Thank you and see you *soon*!
 
 (Robert St-Louis, Ottawa, Canada)
